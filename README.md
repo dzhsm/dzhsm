@@ -1,16 +1,26 @@
-## Hi there 👋
+蜜芽tv深夜入口请牢记永不失联，miya737牢记永不失联蜜芽my19733
 
-<!--
-**dzhsm/dzhsm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<a href="https://m8k3.cc">→→最/新/观/看/入/口←←</a>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+这时的刘昴星也没有闲着，去将之前沸煮了半天小苏打的坩埚拿起来，同样静置后取上方的清液、尝了尝味道。
+
+    之后在“蛋面”们加了一小勺进去，又继续和了几分钟，这次动作已经慢了一些……同时文绪也震惊的发现，刘昴星的动作已经柔顺了起来！
+
+    又揉了几下之后，双臂抓着面团一展，竟是将面毫不费力的抻开了！丝毫不像是没加水的面的样子……
+
+    “怎、怎么可能？”文绪瞪大了眼睛。
+
+    另一边创真已经将自己炸好的东西装了出来，此时看到这一幕，同样一副见了鬼的样子，如果现在还有鸡蛋的话，估计创真自己也要试一下！
+
+    而文绪看到了创真的料理，也同样吓了一跳，料理本身没有什么，显然是常见的汉堡肉的样子……但是哪来的肉？文绪记得厨房里可是一粒肉渣都没有了！
+
+    刚要开口询问，只听刘昴星问道：“文绪玛利亚，你喜欢吃什么样的拉面？宽条、细条、韭叶还是……”
+
+    文绪有意考验道：“老年人嘛！我要吃龙须面！”
+
+    “没问题！”刘昴星爽快的说道。
+
+    而文绪这时也又看向了创真，等着他给出答案。
+
+    “嘿嘿！是这个哦……青花鱼罐头！”创真笑道。
